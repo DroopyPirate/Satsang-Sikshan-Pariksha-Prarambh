@@ -285,3 +285,25 @@
 - Sukhnandan RaamPratap bhai ne bolava gayo. Etla ma akash mathi Devo avya ane temne AshwiniKumar ne bolavya. AhwiniKumar e aayi ne pag ma dava lagai ane paato bandhyo. Pachi devo Ghanshyam ne page laagi ne adrashya thai gaya.
 - RaamPratap bhai e avi ne puchyu ke aa paato kone bandhyo. Tyare Veni e kahyu ke AshwiniKumare.
 - RaamPratap bhai raaji thai ne Ghanshyam ne tedi ne ghare lai gaya. Suvaasini Bhabhi e ghanshyam ne chhati e chapya ane puchyu kya vagyu? Ghanshyam e kahyu ke mane vagyuj nathi. Paato kholi ne joyo to khali Khaapo ghaa dekhayo biju kai dekhayu nai.
+
+
+# 23 Sod Chinho
+
+- **Dharmadev, BhaktiMaata, Tran Putro, VasantaaBai ane ChandaaMaasi** sathe tirth yaatra e nikdya.
+- Rasta ma **Gunda gaam** avyu. Saanje gaam na mandir ma aarti karva gaya.
+- Chalu aarti e Thakorji ni murti aasan thi niche utri ne gada mathi haar utari ne ghanshyam ne pehravyo.
+- Badha e joyu. Vaat felayi. Aa vaat **Raja GumaanSinh** ne khabar padi.
+- Raja e hukam moklavyo ke kale **savare 10 vage** DharmDev ane temna 3 putro darbar ma hajar thai.
+- Savare Raja e DharmDev ne puchyu ke ama thi Ghanshyam kon chhe. Dharmdev e vachla putra Ghanshyam ne bataya,
+- Raja ne thayu ke jo aa badak Bhagwan hoi to shashtra pramane eno padchhayo na hoi ane pag ma 16 chinho hova joiye.
+- Raja e badhane choganma bolaya. Joyu to badhano padchhayo dekhai pan Ghanshyam no na dekhai.
+- Pachi Raja e Ghanshyam ne pag laamba kari ne besva kahyu.
+- Pag ma joyu to **Jamna pag ma - AshtKon, UrdhvaRekha, Swastik, Jambu, Jav, Vajra, Ankush, Ketu ane Padma - em 9 chinho** joya.
+- **Daba pag ma Trikon, Kadash, Gopad, Dhanush, Minn, ArdhChandra ne Vyom em 7 chinho.**
+- **Banne pag ma UrdhvaRekha Angutha ane Aangdi vachethi nikdi ne paani taraf jaai**.
+- Raja anand ma aai gaya ane pachi Raja ane  **Raani KuvarBaa** page lagya, pooja kari, aarti  kari, **makhmal ni sonani bharatvaadi topi ane survaad bhet apya.**
+- Trije divse Gunda Gaam thi nikdya. IcchaRaam nana hata, chalta avde nai etle **Vasantabaai IchhaRaam ne tedi ne chhale**. Ane Ghanshyam BhaktiMata ne angdi pakdi ne chale.
+- Ghanshyam e hath kari BhaktiMata ne ke tame  Ichhraam ne tedo chho pan mane nai, IchhaRaam no bhaar vadhare chhe, maro bhaar chej nai.
+- **Ghanshyam e IchhaRaam no bhar vadhari didho**. VasantaBaai Bhaktimata ne kahe ke  IchhaRaam aatla bhare kem lage chhe.
+- BhaktiMaata e kahyu ke tame Ghanshyam ne tedo. Emno bhaar na lagyo. Pachi IchhRaam ne upadya to emno pan bhaar na lagyo.
+- Yatraa karta karta **Lucknow ane Kaanpur thai ne Ayodhya** taraf pacha farya.

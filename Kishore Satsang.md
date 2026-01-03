@@ -21,3 +21,10 @@
 - Aakh band kari ne Bhagwan ane Guru ne yaad karva. Bhajan hamesha Bhagwan ane temna Uttam bhakt e sathej thaai.
 - Swami ane Narayan. Akshar ane Purshottam. Aatma ane Parmaatma. Bhram ane Parabhram.
 
+
+# 3 Prarthana
+
+- Apde nava kapda, navi vastu, evu badhu joitu to apde Pita pase mangiye.
+- Em apde Saari buddhi, saara guno joita hoi to apde Swaminarayan Bhagwan jode mangiye. E apda pita chhe
+- **Shudh Hraday thi Bhagwan pase maangni karvi enu naam j Prarathana. Prarthana etle mangvu.**
+- Prarthana karta palathi vaadi ne sthir besvu ane bhagwan ane guru ne yaad karva.
