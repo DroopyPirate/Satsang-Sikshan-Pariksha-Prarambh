@@ -307,3 +307,18 @@
 - **Ghanshyam e IchhaRaam no bhar vadhari didho**. VasantaBaai Bhaktimata ne kahe ke  IchhaRaam aatla bhare kem lage chhe.
 - BhaktiMaata e kahyu ke tame Ghanshyam ne tedo. Emno bhaar na lagyo. Pachi IchhRaam ne upadya to emno pan bhaar na lagyo.
 - Yatraa karta karta **Lucknow ane Kaanpur thai ne Ayodhya** taraf pacha farya.
+
+
+# 24 Ghanshyam e hinsaa bandh karavi
+
+- **Dharmdev na saadu bhai BaldiDhar. BaldiDhar ane emna bhai MorliGangaDhar banne Raja na sipahi**
+- Raja nu lashkar **BallamPadhri gaam** avyu. Dharmdev ne thayu ke naji chhe etle BaldiDhar ane MorliGangaDhar ne mali aviye.
+- Gaam ne paadre bagicha ma lashkar hatu. Tya darwaje ek chaukidaar hato. Dharmdev e kahyu ke mara aa banne ne malyu chhe. **Chaukidaar Pipda na jhaad paase lai gayo**. Tya tambu hato.
+- Tambu ma Raaja sipahio paase bakra, gaay vagere ni hinsa karavto hato.
+- Hinsa joi Dharmdev dukhi thaya e joine Ghanshyam e puchyu ke su che?
+- Ghanshyam e andar joine sankalp karyo etle badha hathi ane ghoda potani saakad todine tambu taraf dodya ane tambu ukhadva laagya. Sipahio bhagva lagya. Hathi ghoda emni pachad bhaagya.
+- Raja tambu ma ughade sharire betho hato e pan bhagyo. Eni pachad hathi bhagyo. Raja ni dhotli chhuti gai. Jem tem dhotli pakdi ne pipda na jhaad niche santayo. Hathi e taraf j ayo etle raja upar chadi gayo ane hathi agad nikdi gayo.
+- Ghanshyam e jhaad ma pravesh karine, jhaad halava lagyo. Raja gabhrayo ane maafi mangva lagyo.
+- Ghanshyam e jhaad rahine bolya ke hinsa kare chhe paap kare chhe. Ane je bhagwan ne tu bolave chhe e to niche Dharmdev ni bajuma ubha chhe.
+- Raja e bau maafi mangi pachi Ghanshyam e jhaad sthir karyu. Raja e niche aaine maafi mangi ne kahyu ke aaj thi hu ane maru senya koine hinsa nai karva dau. Mara paap maaf karo.
+- Ghanshyam e raja ne ashirwad apya ane pachi e visaamo leva tambu ma gayo. Ane dharmdev, RaamPratap ane Ghanshyam, BaldiDhar ane MorliGangaDhar ne mali ne Ayodhya gaya.

@@ -28,3 +28,18 @@
 - Em apde Saari buddhi, saara guno joita hoi to apde Swaminarayan Bhagwan jode mangiye. E apda pita chhe
 - **Shudh Hraday thi Bhagwan pase maangni karvi enu naam j Prarathana. Prarthana etle mangvu.**
 - Prarthana karta palathi vaadi ne sthir besvu ane bhagwan ane guru ne yaad karva.
+
+
+# 4 Parabhram Purushottam Sahjanand Swami
+
+- Samvat 1837 Chaitra Sud Naum (RaamNavmi) Chhapaiya.
+- Dharmdev, BhaktiMaata. RaamPratap, IchhaRaam.
+- Nani ummare Kashi ma pandito ni sabha ma Shastrarth ma jit.
+- Nilkanthvarni rupe **9 lakh yogio nu kalyan.**
+- **Gopad yogi pasethi Ashtang Yog sidh kari emnu pan kalyan karyu**.
+- Badhe yatra kari **Saurashtra padharya**. **Muktanand swami ne 5 prashno puchya**. Sacha uttar sambhdine tya rokaya.
+- **Ramanand swami Kachh thi Piplana avya**. Ramanand swami ane Nilkanth aiya malya. "Hu to dugdugi vagadva vado chhu, khara khel na bhajavnara to have avya chhe"
+- **Ekj raat ma 500 paramhanso ni diksha aapi**.
+- **Dar varshe Junagadh jai gunatitatnand swami ni vaato sambhadva ane gopadanand swami ni aagna ma haribhakto nerehva kidhu**.
+- **Gadhda ma DadaKhaachar na darbaar ma 25 varas rahya**.
+- **Samvat 1886 Jet Sud Dasam na divse antardhaan thaya**. Tya atyare mandir chhe.
