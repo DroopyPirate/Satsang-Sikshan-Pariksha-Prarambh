@@ -322,3 +322,17 @@
 - Ghanshyam e jhaad rahine bolya ke hinsa kare chhe paap kare chhe. Ane je bhagwan ne tu bolave chhe e to niche Dharmdev ni bajuma ubha chhe.
 - Raja e bau maafi mangi pachi Ghanshyam e jhaad sthir karyu. Raja e niche aaine maafi mangi ne kahyu ke aaj thi hu ane maru senya koine hinsa nai karva dau. Mara paap maaf karo.
 - Ghanshyam e raja ne ashirwad apya ane pachi e visaamo leva tambu ma gayo. Ane dharmdev, RaamPratap ane Ghanshyam, BaldiDhar ane MorliGangaDhar ne mali ne Ayodhya gaya.
+
+
+# 25 Mahaavat ni Rakshaa kari
+
+- **Ayodhya ma Baldevji naam na sheth** hata emne hathi paadyo ane ene sambhadva mahaavat rakhyo.
+- Mahaavat roj hathi na khorak mathi **ghee ni mithaio chori le**.
+- Hathi badhu juve. Ek vaar sarovar ma snan karava hathi ne mahaavat lai gayo.
+- Hathi e ene pachhadva maate sundh thi pakdine ucho karyo.
+- Dharmdev ane Ghanshyam tyathi jata hata emne aa joyu.
+- Ghnashyam e biju swaroop pragat kari ne sarovar ma utaryu.
+- Mahaavat ne chhodavyo. Hathi par ghanshyam besi ne sarovar ni baar laya, shant karyo.
+- Biju swaroop adrashya karyu. Hathi par besi ne potana na aangna sudhi avya.
+- Mahaavat e hathi ne besva kidhu, haathi betho, badha utrya.
+- Mahaavat e ghanshyam ne aabhar ane maafi mangi ane kahyu ke havethi khorak ni chori nai karu.

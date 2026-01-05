@@ -43,3 +43,10 @@
 - **Dar varshe Junagadh jai gunatitatnand swami ni vaato sambhadva ane gopadanand swami ni aagna ma haribhakto nerehva kidhu**.
 - **Gadhda ma DadaKhaachar na darbaar ma 25 varas rahya**.
 - **Samvat 1886 Jet Sud Dasam na divse antardhaan thaya**. Tya atyare mandir chhe.
+
+
+# 4 Puja
+- **Ambrish mota raja** hata. To pan kalako sudhi puja karta.
+- Naahti vakhate Swaminarayan Swaminarayan bolta naahvu.
+- Uttar ke purva disha ma puja karva besvu.
+- 5 maada. 2 ke vadhu Tapni maada. 5 pradakshina. 5 dandvat
