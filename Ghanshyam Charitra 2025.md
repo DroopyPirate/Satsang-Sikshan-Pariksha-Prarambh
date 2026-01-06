@@ -336,3 +336,14 @@
 - Biju swaroop adrashya karyu. Hathi par besi ne potana na aangna sudhi avya.
 - Mahaavat e hathi ne besva kidhu, haathi betho, badha utrya.
 - Mahaavat e ghanshyam ne aabhar ane maafi mangi ane kahyu ke havethi khorak ni chori nai karu.
+
+# 26 Navi Batreesi
+
+- Ghanshyam to Suvaasini Bhaabhi "Aaje dadh dukhe chhe to jamvama **sheero aapjo mane**."
+- Bhaaabhi e badha ne rotli pirsi ane Ghanshyam ne sheero apyo. Ghanshyam e emathi **thodo sheero IchhaRaam ne apyo** ane **2 kodiyo sheero khaine** ubha thai gaya.
+- Pachi **rasoda pachad na fadiya ma** Ghanshyam ne Bhaabhi e puchyu ke daadh bau dukhe chhe?
+- Ghanshyam e ek ek karine aa daat dukhe chhe em kari ne badha daat bhaabhi pase padavi didha. (**potani shakti thi daat dhila kari** didhela)
+- Bhaabhi gabhrai gya ane Mata ne bolaya. Maata e daat ni dhagli joi ane Ghanshyam ne modhu kholva kidhu.
+- Joyu to Ghanshyam ne **navi Batreesi avi gayi** hati.
+- Ghanshyam e daat ni dhagli mutthi ma bhegi kari ane hath uchho karyo, to badha **daat moti ma badlai gaya**. 
+- Etla ma akaash mathi **MaanSarovar na RaajHanso avya** ne udi udi ne ek ek moti lai ne udya.

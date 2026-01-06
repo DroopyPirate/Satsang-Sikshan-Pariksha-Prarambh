@@ -45,8 +45,18 @@
 - **Samvat 1886 Jet Sud Dasam na divse antardhaan thaya**. Tya atyare mandir chhe.
 
 
-# 4 Puja
+# 5 Puja
 - **Ambrish mota raja** hata. To pan kalako sudhi puja karta.
 - Naahti vakhate Swaminarayan Swaminarayan bolta naahvu.
 - Uttar ke purva disha ma puja karva besvu.
-- 5 maada. 2 ke vadhu Tapni maada. 5 pradakshina. 5 dandvat
+- **5 maada. 2 ke vadhu Tapni maada. 5 pradakshina. 5 dandvat**
+
+
+# 6 Shurveer BaalBhakt
+
+- Maharaj na santo gaamo gaam satsang karavta. **Jaamnagar taabaa na gaam** ma ek chhokra ne satsang thayo.
+- Teno baapo satsangi nai. Tena na game. Lalchave, Darave, Dhamkave, Maare.
+- Chhokro satsang na muke. Baapa ne ek divas ghusso avyo tene kidhu ke tane **jotre bandhu** chhu swaminarayan naam muki de naito **gaadu uchu kari ne faasi chadai dais**.
+- Tene naam na mukyu. Baapa e gaadu uchu karyu. **Chhokro mari gayo**.
+- **Maharaj ne gadhda ma khabar padi**. Maharaj e kidhu ke Chhokro sacho bhakt kehvai. Prahlaad ni Bhgawan e raksha kari ane bhakti chalu rakhi. **Aa chhokra ni bhagwan e raksha na kari to pan ene bhakti chalu rakhi**. **Bapo hiranyakashyap jevo kevai**.
+- **Gamme tevu dukh aavi pade ane bhagwan raksha kare ke na kare to pan Bhagwan ne mukva nahi.**
