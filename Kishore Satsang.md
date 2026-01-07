@@ -60,3 +60,18 @@
 - Tene naam na mukyu. Baapa e gaadu uchu karyu. **Chhokro mari gayo**.
 - **Maharaj ne gadhda ma khabar padi**. Maharaj e kidhu ke Chhokro sacho bhakt kehvai. Prahlaad ni Bhgawan e raksha kari ane bhakti chalu rakhi. **Aa chhokra ni bhagwan e raksha na kari to pan ene bhakti chalu rakhi**. **Bapo hiranyakashyap jevo kevai**.
 - **Gamme tevu dukh aavi pade ane bhagwan raksha kare ke na kare to pan Bhagwan ne mukva nahi.**
+
+
+# 7 Ganga Maa
+
+- **Amdavad paase Jetlapur gaam ma Gangama rahe. AatmaaNand Swaami na shishya. AatmaNand Swami -> RaamaNand Swami -> Sahajanand Swami.**
+- Teone Maharaj pratye prem ane **Bhatrija Dikra kahi ne bolave**, pan sakshat bhagwan evo bhaav nai.
+- Ek  vaar **RamaNand Swami e swapna ma GangaMaa ne darshan** api ne vaat kari ke Sahajanand Swami sakshaat bhagwan chhe. Bhatrija Dikra na kaho ane amaari **gaadi takiyo je baandhi rakhyo, ena par emne besadva**. Ane Maharaj thoda samay ma Jetalpur avse.
+- Thoda divas GangaMaa ne khabar thai ke Sahajanand Swami ave chhe. Temne Sharnai, Dhol vada ne taiyaar kariya saamaiya mate. Ane potani dikri ne maathe traamba no kadash ane naariyed mukavya ane pote hath ma kakaavati lidhi. Pujan karyu.
+- GangaMaa e maharaj ne Gaadi-takiye besva kahyu. Maharaj kahe ke ame besiye pan mane Bhatrija Dikra kahi ne bolavo.
+- GangaMaa kahe ke maharaj mane RamaNand Swami vaat kari etle have nai bolu. Maari bhul maaf karo.
+- **Maharaj kahe ke Ame tamne maaf kariye chhiye pan tame mane dikra kahine bolavo mane game chhe**.
+- Pachi GangaMaa Dikra kahi ne bolavya tyare Maharaj Gaadi-takiye betha.
+- **GangaMaa na banavela daal-bhaat Maharaj bau vakhanta**.
+- Jya jya utsav-samiya thaai, tya GangaMaa jaai ane Maharaj mate prem thi rasoi banave.
+- Ghani vaar GangaMaa Maharaj sathe farta hoi tyare, tyare mathe sadagti sagdi par daal-bhaat chadta hoi. Ane maharaj snaan leva jaai tyare rotli banai de ane ane maharaj ave tyare emne jamaade.

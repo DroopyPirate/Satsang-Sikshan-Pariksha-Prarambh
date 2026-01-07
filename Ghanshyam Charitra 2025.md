@@ -347,3 +347,16 @@
 - Joyu to Ghanshyam ne **navi Batreesi avi gayi** hati.
 - Ghanshyam e daat ni dhagli mutthi ma bhegi kari ane hath uchho karyo, to badha **daat moti ma badlai gaya**. 
 - Etla ma akaash mathi **MaanSarovar na RaajHanso avya** ne udi udi ne ek ek moti lai ne udya.
+
+
+# 27 BaadMitro ne jamaadya
+
+- **Chhapaiya - Meen Sarovar. Maadhav, Veni, Praag, Sukhnandan jode ramta ramta 4 vagya**.
+- Badha e vicharyu jaldi ghare jaine jamiye.
+- Ghanshyam kahe mari jode **saanj sudhi ramo** to aiyaj jamvani vyavastha karu.
+- Badha maanya. Ghanshyam e **aamba ni daadi par rumaal bandhyo** ane kahyu ke thodi vaar ma mithai avse. Tya sudhi apde sarovar ma snaan kariye.
+- Paani ma khub ramat kari. Ghanshyam e badhane baar kadhya ke modu thai jase pachi motabhaai bolse.
+- VeniRaam e kidhu ke Ghanshyam mithaio jamadvvanu kahyu tu.
+- Ghanshyam e daadkhi par no rumaal kholi ne mithaio kadhva lagya. Badhane thayu rumaal ma thi kemnu.
+- Ghanshyam jaani gaya. Ghanshyam e kidhu ke badha besi jao ane Ghanshyam e sankalp karyo etle aakash mathi **8 siddhio utari ne avi ane emani paase 32 pakwaan** ane **sonani jhaari ma thandu paani**.
+- Chhelle siddhio prabhu ne page laagi ne adrashya thai ane badha pacha ghare gaya.
