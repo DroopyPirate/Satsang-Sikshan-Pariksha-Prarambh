@@ -360,3 +360,18 @@
 - Ghanshyam e daadkhi par no rumaal kholi ne mithaio kadhva lagya. Badhane thayu rumaal ma thi kemnu.
 - Ghanshyam jaani gaya. Ghanshyam e kidhu ke badha besi jao ane Ghanshyam e sankalp karyo etle aakash mathi **8 siddhio utari ne avi ane emani paase 32 pakwaan** ane **sonani jhaari ma thandu paani**.
 - Chhelle siddhio prabhu ne page laagi ne adrashya thai ane badha pacha ghare gaya.
+
+
+# 28 Hajaaro ne jamaadya ane Abhimaan todyu.
+
+- **Sanyasio ni jamaat Chapaiyaa ayi. 1000 sadhu bavao. Badha Khaapa Talavdi ni kinare rokaya**.
+- **Nahi Dhoine 5 aagevaan sanyasio gaam ma avya**, sidhu saaman leva.
+- Aatla badha nu sidhu mangse ena bik thi **gaam no dhani MotiBhai Tarvaadi bije gaam jata rya**.
+- 5 sadhuo gaam ma sauthi mota sajjan kon chhe em puchine Dharmdev na ghare avya.
+- Dharmdev e kahyu ke **100 jetla nu sidhu apu**, etluj chhe, biju gaam ma thi bhegu kari lejo.
+- Bavao e hath pakdi maane nai. Ghanshyam ghare aai ne pitane puchuy ke su thayu.
+- Vaat janya pachi kidhu ke sidhu saaman kadho khutse nai. **Suvaasini bhabhi badhu kadhva lagya**, jot jotama **1000 manas thi vadhare nu sidhu no dhaglo thai gayo**.
+- Bavao khush thai ne gaya. Dharmdev ne thayu ke have ghar ma kai bachyu nai hoi.
+- Em vichari ne **kothar ma joyu pan kothar ma badhu emnu em hatu**.
+
+

@@ -75,3 +75,12 @@
 - **GangaMaa na banavela daal-bhaat Maharaj bau vakhanta**.
 - Jya jya utsav-samiya thaai, tya GangaMaa jaai ane Maharaj mate prem thi rasoi banave.
 - Ghani vaar GangaMaa Maharaj sathe farta hoi tyare, tyare mathe sadagti sagdi par daal-bhaat chadta hoi. Ane maharaj snaan leva jaai tyare rotli banai de ane ane maharaj ave tyare emne jamaade.
+
+
+# 8 AkhandaNand Swmai
+
+- **AkhandaNanad Swmai** maarge ekhla jata ane ema **gaadh jungle aavyu**.
+- Thoda samay Swami ne **vaagh avto dekhayo**. Swami ne thayu ke aje to pati gyu vaagh to chhodse nai.
+- Pachi emne vicharyu ke ek divas to maharaj na dhaam ma javanuj chhe ane maru naam AkhandaNand, maro anand kon chinvi sake?
+- Swami vaagh ni saame gaya ane maharaj ne yaad kare ane vichar kare ke aatma to ajar amar chhe.
+- Vaagh e **panjo upadyo** pan maharaj ni krupa e ene prerna thai ane ene **panjo muki didho**. Swami na pag ma aarotyo ane jungle ma jato rahyo.

@@ -47,8 +47,7 @@
               "title": "Release Notes 1.10.6"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -196,9 +195,9 @@
       "bases:Create new base": false
     }
   },
-  "active": "42a2516ab86e6d1e",
+  "active": "0e19401b6a96642d",
   "lastOpenFiles": [
-    "Ghanshyam Charitra 2025.md",
-    "Kishore Satsang.md"
+    "Kishore Satsang.md",
+    "Ghanshyam Charitra 2025.md"
   ]
 }
