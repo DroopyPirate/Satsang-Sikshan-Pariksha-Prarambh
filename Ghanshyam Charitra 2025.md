@@ -375,3 +375,17 @@
 - Em vichari ne **kothar ma joyu pan kothar ma badhu emnu em hatu**.
 
 
+# 29 LakshmiBaai ne Chamatkaar.
+
+- Ghani vaar Ghanshyam mitro sathe adosi padosi na ghare jai makham, dai khai ave.
+- **VeniRaam jode ena ghare jaine dahi** ma saakar nakhi khava lagya. **VeniRaam na maata LaxmiBaai je baar dana vinta hata**.
+- Andar aaine joyu, banne jana **baari ma thi naasi gaya**.
+- LaxmiBaai e BhaktiMaata ne fariyaad kari. BhaktiMaata kahe ke Ghanshyam evi chori karej nai. VeniRaam ghani vaar amare ghare aaine khai jaai chhe. **Ghanshyam evu karto hoi to ene pakdi rakhjo to maanva ma ave**.
+- **Thoda divas pachi** pacha VeniRaam ane Ghanshyam banne Dahi khava gaya. **LaxmiBaai suta hata pan rasoda ma avaaj** avyo etle jova gaya to banne jana na modhe dahi na nishan ane dahi khali.
+- Banne bhagya, LaxmiBaai **Ghanshyam pachad bhagya, pakdi ne baandhi didha**.
+- Gaam ma bumo padta padta BhaktiMata na ghare gaya ke chor pakdyo chhe jova avo.
+- Ghanshyam e **chamatkaar thi potani ni jagya e VeniRaam ne muki didho** ane pote ghare pochi gaya.
+- Badha ne batava LaxmiBaai e rasodu kholyu to tya VeniRaam ane etla ma **ghare thi Ghanshyam gaud khata khata avya**.
+- Badha hasi ne gharre gaya. LaxmiBaai ne thayu ke nakki aa baadak Bhagwan chhe. BhaktiMaataa na ghare jaine maafi mangi ane Ghanshyam ne pranam karya.
+
+

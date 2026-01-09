@@ -84,3 +84,14 @@
 - Pachi emne vicharyu ke ek divas to maharaj na dhaam ma javanuj chhe ane maru naam AkhandaNand, maro anand kon chinvi sake?
 - Swami vaagh ni saame gaya ane maharaj ne yaad kare ane vichar kare ke aatma to ajar amar chhe.
 - Vaagh e **panjo upadyo** pan maharaj ni krupa e ene prerna thai ane ene **panjo muki didho**. Swami na pag ma aarotyo ane jungle ma jato rahyo.
+
+
+# 9 Aarti
+
+- **Muktanand Swami**, RamaNand Swami na shihshya etle dhaamgaman pachi e udaas hata.
+- **Kaalvaani ma maharaj e sankalp karyo** ke muktanand swami ni dilgiri todiye.
+- Vehli savaare sau santo ne laine maharaj **nadi ma nahava** gaya.
+- Badha agad chale, pachad muktanand swami. **Kaakhraa na vann RaamaNand Swami e darshan apya** ane Maharaj ni odkhan api.
+- MuktaNand swami raaaji thai gya. Snaan kari ne pachha aai ne jaate ful ni maada baanai, maharaj ne pehravi ane kahyu ke "**Bhale aap Sadguru tarike rahya, pan aap to Sakshat Pragat Purushottam chho**."
+- Sundar Aarti banavi ane maharaj ni Aarti utari. E pachi samprdaay ma ghana santo kavio e potana bhaav thi aarti baanai chhhe.
+- **Mahant Swami Maharaj** e Maharaj na AksharPurushottam Siddhant ane Uttam Bhakt ne dhyan ma rakhine **Bhadresh Swami** ane anya santo ni madad thi **2018 ma PramukhSwami Maharaj na JanmaJayanti** na divse AksharPurushottam ni Aarti api.
