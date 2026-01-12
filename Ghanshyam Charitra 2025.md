@@ -389,3 +389,16 @@
 - Badha hasi ne gharre gaya. LaxmiBaai ne thayu ke nakki aa baadak Bhagwan chhe. BhaktiMaataa na ghare jaine maafi mangi ane Ghanshyam ne pranam karya.
 
 
+# 30 Ekaadashi no Mahima
+
+- **Ekadashi** na divase ghanshyam **Ayodhya ma savare mandire darshan** karva gaya.
+- **Mandir no mahant MohanDaas RaamCharit ni katha karto hato**. Ema vaat avi ke "**Ek ekadashi** kariye to **1000 AshwaMegh yagna jetlu punya male**."
+- Aa saambhdi ne Ghanshyam e MohanDaas ne puchyu ke "Ghana loko ekadashi nathi karta, tenu karan shu?"
+- MohanDaas - Bhagwan e aatlo durlabh deh aapyo ene kasht kem apvu. Jyarthi Jaggannath Puri ma Ekadashi ne uchi baandhi tyarthi loko ekadashi nathi karta. Jene khava naa madtu hoi ej ekadashi kare.
+- Ghanshyam - Aavi khoti vaat na karso. Shastra virudh vaat karso to paap laagse, Ekadashi no bau mahima chhe etle ekadashi to karvij joiye.
+- MohanDaas - Chhokra mane updesh ape chhe? Sharmaato nathi?
+- Ghnashyam e ek drashti kari ema to bava ne samaadhi thai ane **jampuri ma yamduto ene marva lagya.**
+- Bavaji potana aasanej bumo padta padta ucchadva lagyo. Hadka khokhraa thai gai pachi samadhi mathi baar ayo.
+- Loko ni ane ghanshyam ni maafi ane kahyu ke aa to sarvopari bhagwan chhe ane hu ane tame badha pan Ekadashi karvani chalu kari do.
+
+

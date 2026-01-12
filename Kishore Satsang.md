@@ -95,3 +95,21 @@
 - MuktaNand swami raaaji thai gya. Snaan kari ne pachha aai ne jaate ful ni maada baanai, maharaj ne pehravi ane kahyu ke "**Bhale aap Sadguru tarike rahya, pan aap to Sakshat Pragat Purushottam chho**."
 - Sundar Aarti banavi ane maharaj ni Aarti utari. E pachi samprdaay ma ghana santo kavio e potana bhaav thi aarti baanai chhhe.
 - **Mahant Swami Maharaj** e Maharaj na AksharPurushottam Siddhant ane Uttam Bhakt ne dhyan ma rakhine **Bhadresh Swami** ane anya santo ni madad thi **2018 ma PramukhSwami Maharaj na JanmaJayanti** na divse AksharPurushottam ni Aarti api.
+
+
+# 10 Veer Bhaguji
+
+- **Bhaguji Maharaj na angat  sevak**. Potanu gaam garaas badhu chhodi ne Maharaj ni seva ma avela.
+- Dekhav ma **Nicha pan bauj himmatvaan**. **DadaKhaachar na khetaro ni rakhevaadi kare**.
+- Bhaguji nu naam pade etle koi kaathi ke garasiyo saame ladva taiyaar na thai.
+- **Bhadli na darbaar BhaanKhaachar** e kidhu ke je **bhaguji nu maathu** lai ave ene **jamin ane inaam aapu**.
+- **Sindh desh thi 2 bhaiyo Khabad ane Mataaro avela e taiyaar thaya.**
+- Bhaguji e khabad ne kahyu ke pela tu vaar kar, ene vaar karyo, bhaguji ne **Janoivadh ghaa thayo**. **Bhaguji e ena par ghaa karyo ane ek vaar ma maari nakhyo**.
+- Ladaai thodik vaar chaali. **Chhelle Mataaro jiv bachai ne bhagyo**. Bhaguji ne **18 ghaa vagya hata**.
+- Maharaj e vaaland pase bhaguji na ghaa saaf karai ne paata bandhavya. Akha **gadhda ma Dhol, nagara, aarti, zhaalar band karavya**. Kaik vaage to bhaguji ne **suratan upde ane taanka tuti jaai**.
+- Ek vaar vaaland e ghaa ma **kabutar ni charak naakhi ane koik e zhaalar vagadi**.
+- Maharaj ne khabar padi ane **Vaaland ne puchyu ene jamin ni laalach ma karyu**.
+- Maharaj e **SacchidaNand swami ne kahyu ke tame aiya beso ane Kaad ave to ene maari ne bhagadi mukjo**. Apde bhaguji ne navu jivan apvu chhe.
+- Thoda samay ma bhaguji saaja thaya.
+- **Bhavnagar na darbaar VajehSinh baapu** e bhaguji ne veerta sambhdi ne emnu sanman karyu ane kahyu ke tame mari tya naukri karo tamne mahine **300 rupiya ane 500 ghodsavar na sardaar banavu**.
+- Bhaguji e kidhu ke me gaam ne garaas e badhu Swaminarayan Bhagwan mate chhodyu che. Mare khali bhagwan joie chhe.
