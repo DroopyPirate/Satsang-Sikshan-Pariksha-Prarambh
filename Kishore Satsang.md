@@ -115,7 +115,7 @@
 - Bhaguji e kidhu ke me gaam ne garaas e badhu Swaminarayan Bhagwan mate chhodyu che. Mare khali bhagwan joie chhe.
 
 
-# Saamat Patel
+# 11 Saamat Patel
 
 - **Vaadaak (વાળાક) gaam ma ek aahir haribhakt Saamat Patel raheta**.
 - Maharaj na darshan karva **gadhda avya**.
@@ -125,3 +125,14 @@
 - Maharaj e kidhu ke naa mare khali **1000 rupiya ni jaroor chhe tame bija rakho**, jivan jivva maate joise.
 - Saamat Patel kahe "**Ame bhukhiya na mariye, bije gaam thi ucchina daana laavi khaishu ane bije varse bhari daaishu**."
 - Maharaj bau raaaji thaya.
+
+
+# 12 Thaal
+
+- Bhagwan ne thaal dharavi nej jamvu joie.
+- Sauthi **pelo thaad Sadguru Paramhans BhumaNand Swami** e banavyo hato.
+- Ek vaar BhumaNand swami ne **sadang 4 divas upvaas thayo**.
+- **Paanch me divas** teo ek gaam ma padharya, tya **ek sant e** emni aavi stithi joine temne **ghau no ponk (પોંક) apyo**.
+- Achanak bhojan madva thi BhumaNand Swami e gad gad thai ne Maharaj ne ponk dharavyo.
+- Teo kavi hata temne tarat "**Jamo Thaal Jivan Jau Vaari**" thaal rachyo ane **Maharaj** e raaji thaine emne **darshan apya** ane **thaal ma je je vaangi hati e emna saame jamya**.
+- Maharaj e BhumaNand swami ne ashirwad api ne adrashya thaya, tyar thi aa thaal Satsang maa prachalit chhe.

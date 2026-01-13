@@ -419,3 +419,16 @@
 - Ghanshyam e vicharyu ke Maata-Pita nirdosh chhe emne muki ne naa javai. Pacha aai gaya ane pakdaya.
 - Mama emne pacha laya, hath ma 5 rupiya apya. Pachi maata sathe besi ne ghee, gaud, bhaat jamya.
 
+
+# 32 RaamChandra rupe Darshan
+
+- Ghanshyam badha mitro lai ne **Chhapaiya na Meen Sarovar** ma ramva gaya.
+- Paani ma **pakad daaav ramva laagya**. Ghanshyam bau jhadap thi tare, koina hath ma ave nai.
+- Thodi vaar pachi undi dubki maari, **sarovar na tad ma besi gaya**.
+- Baadmitro ne chinta thai, emne thayu ke Ghanshyam kato dubi gaya kato magar laine khai gyo.
+- Emne baar aaine tya **kinare Manchha (મંછા) naam na Dhobi** ne vaat kari.
+- Dhobi e paani ma padi, dubkio mari ne bau tapaas kari pan koi madyu nai etle ene baadako kidhu ke ghanshyam na maata pita ne bolai lavo.
+- Ek baadak bolai layo, **DharmDev, BhaktiMata, RaamPratap ane VashRaam** avya ane badhe vichaare ke have karvu shu?
+- Ghanshyam ne thayu ke maata pita chinta ma chhe, have baar avu padse.
+- Ghanshyam baar avya, paani par chali ne kinare avya, **paani par chalta hata** tyare badhane Ghanshyam ma **RaamChandra Bhagwan na darshan thaya**.
+- Ghanshyam maata-pita ne page lagya ane kahyu ke chinta kem karo chho? Hu to niche besi ne maru kaam karto hato.
