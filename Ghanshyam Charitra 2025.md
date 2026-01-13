@@ -402,3 +402,20 @@
 - Loko ni ane ghanshyam ni maafi ane kahyu ke aa to sarvopari bhagwan chhe ane hu ane tame badha pan Ekadashi karvani chalu kari do.
 
 
+
+# 31 Ghanshyam ne Janoi aapi
+
+- Ghanshyam **7 varas na thaya**. **Janoi** nu vichari ne BhaktiMaata e **gaam na gor HariKrushna Upaadhyay** ne bolavya.
+- Pavitra ane saada bhraman, pothi kholi ne ganatri kari ane emne **Faagan Sud Dasham (Samvat 1845, Monday)** ni taarikh api.
+- Janoi ni taiyaari chalu kari, aakhi barhatta sheri shangaari, ghar ma rang puravya, diwaal par chitro doravya, raangodi puraaavi, **leemda na jhaad niche moto mandap bandhyo**.
+- HariKrushna Upaadhyay ane bija bhramano mantrochaar karva laagya.
+- **RaamBali hajaam** ne bolai ne mundan karaavyu. Snaan kari pidu pitaambar pehryu. Devo avya ne pushpa varsha kari.
+- **Bhramchaari no vesh dhaaran kari munj ane mekhlaa dharan karya, haath ma palaash dand ane bhiksha patra lidha**.
+- Maata Pita ne page laagi, bhiksha maangi ne gor ne aapi.
+- Pachi ghanshyam badvo dodva gaam na chauk ma avya.
+- Ghanshyam ne thayu mare loko nu kalyan karvanu chhe, bhaagi ne himalay pochi jau ane tyathi bhaarat yaatra kari loko nu kalyaan karish.
+- Ghanshyam bhaagya ane **maama VashraamBhaai** pachhad bhagyaa ane pakdi na  sakya.
+- Temne mano mann Ghanshyam ne prarthana kari ke ghanshyam mari laaj rakho, hu Dharmdev, BhaktiMata ne su kahish.
+- Ghanshyam e vicharyu ke Maata-Pita nirdosh chhe emne muki ne naa javai. Pacha aai gaya ane pakdaya.
+- Mama emne pacha laya, hath ma 5 rupiya apya. Pachi maata sathe besi ne ghee, gaud, bhaat jamya.
+

@@ -113,3 +113,15 @@
 - Thoda samay ma bhaguji saaja thaya.
 - **Bhavnagar na darbaar VajehSinh baapu** e bhaguji ne veerta sambhdi ne emnu sanman karyu ane kahyu ke tame mari tya naukri karo tamne mahine **300 rupiya ane 500 ghodsavar na sardaar banavu**.
 - Bhaguji e kidhu ke me gaam ne garaas e badhu Swaminarayan Bhagwan mate chhodyu che. Mare khali bhagwan joie chhe.
+
+
+# Saamat Patel
+
+- **Vaadaak (વાળાક) gaam ma ek aahir haribhakt Saamat Patel raheta**.
+- Maharaj na darshan karva **gadhda avya**.
+- Maharaj - Amare thoda rupiya joie chhe mandir nu kaam karvanu chhe, te apsho?
+- Saamat Patel "Ha Maharaj" kahi ne tarat ghare gaya, **jamin, gaadu, badad, bheso badhu vechi** ne **4000 rupiya lai aya** ane  maharaj ne apya.
+- Maharaj puchyu pan Patel kahe ke mari jode hata paisa. Maharaj e fari puchyu tyare badhu kidhu.
+- Maharaj e kidhu ke naa mare khali **1000 rupiya ni jaroor chhe tame bija rakho**, jivan jivva maate joise.
+- Saamat Patel kahe "**Ame bhukhiya na mariye, bije gaam thi ucchina daana laavi khaishu ane bije varse bhari daaishu**."
+- Maharaj bau raaaji thaya.
