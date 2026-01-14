@@ -432,3 +432,14 @@
 - Ghanshyam ne thayu ke maata pita chinta ma chhe, have baar avu padse.
 - Ghanshyam baar avya, paani par chali ne kinare avya, **paani par chalta hata** tyare badhane Ghanshyam ma **RaamChandra Bhagwan na darshan thaya**.
 - Ghanshyam maata-pita ne page lagya ane kahyu ke chinta kem karo chho? Hu to niche besi ne maru kaam karto hato.
+
+
+# 33 Patthar upar paani ma savari
+
+- **Chaitra maas avyo**. Dharmdev, Bhaktimata, Ghanshyam, Ichharam, RaamPratap ane bija gramya jano ne laine **Ayodhya java nikdya**.
+- Ayodhya jata **Saryu nadi**. Saryu no tat moto, undi ane pravah jordar. Ek j naavdi, je pela tat par chhode ane pachi ave.
+- Ghanshyam e Khalaasi ne kidhu **Amne judu vahaan kari aap**, sauna bhega nai besiye.
+- Khalaasi e kidhu ke ena maate savaya paisa laagse. Ghanshyam e kidhu ke savaya paisa nai male, em nem avvu hoi to aav.
+- E pachi Ghanshyam badha ne laine thodek dur jaine, nadi ma padela mota patthhar par badhane besadya.
+- **Ghanshyam ane RaamPratap bhai pathar ni Chhipar (છીપર)** upar betha. Ghanshyam e **jamna hath thi banne pathhar ne sparsh karyo**.
+- Pathar hodi ni mafak tarva laagyo ane saame kathe pochi gaya.

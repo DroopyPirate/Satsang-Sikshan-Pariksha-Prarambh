@@ -136,3 +136,22 @@
 - Achanak bhojan madva thi BhumaNand Swami e gad gad thai ne Maharaj ne ponk dharavyo.
 - Teo kavi hata temne tarat "**Jamo Thaal Jivan Jau Vaari**" thaal rachyo ane **Maharaj** e raaji thaine emne **darshan apya** ane **thaal ma je je vaangi hati e emna saame jamya**.
 - Maharaj e BhumaNand swami ne ashirwad api ne adrashya thaya, tyar thi aa thaal Satsang maa prachalit chhe.
+
+
+# 13 Jodho Bharvaad
+
+- DadaKhachar na **dhor ne sambhaadva** **Maharaj e** **Jodha Bharvaad ne rakhelo**.
+- Eni bhaasha jaadi pan maharaj vina ene game nahi. Koi saru khavanu ape to khai nai, **niswaadi**, **chhas ne rotloj khai**.
+- Maharaj **Jodha na gaam Nani Baraai** pasethi nikadta hata tyare, Jodho darshan karva gayelo. Pachi badhu ghar, bheso, bairi, chhokra muki ne **gadhda avyo ane maharaj ni seva karva lagyo**.
+- **Dudhpaak mate dudh ukaadva mukelu**. Jodho maharaj pase aavi ne kahe "Aa **jivubaa, laadubaa dudh ne baadi de chhe**."
+- Maharaj hasi ne kahe ke tu dhor charavi ne aai, aje taare aiya jamvanu chhe.
+- Jodho pachho avya tyare **santo mathe odhine dhyan karta hata** e joine kahe ke "**Dudh baadi didhu have mathe odhine rovuj pade ne**"
+- Maharaj e jodha ne dudhpaak pirsyo. Jodho kahe baadelu dudh na apso. Maharaj e kidhu ke tu khaa to kharo. Pachi ene khabar padi ke dudhpaak avo saaaro hoi.
+- Jodho ghani vaar dudh ma sakar, badam kesar nakhi, kaato dahi ane makhaan e badhu maharaj ne ape. Maharaj eno bhaav joine jame pan khara.
+- Jodho dudh dohto hoi ane maharaj tya thi nikde to aachad pichkari evi rite maare ke maharaaj na pag dudh thi dhovaai.
+- Maharaj ghani vaar Jodha saame ubha rahi ne chhaas pan valove.
+- Maharaj ghani vvaar chhana maana makhan khai ane Jodho pakde tyare maharaj hase.
+- Maharaj ek vaar Jodha ne kahe "Tu murakh no muraakh j rahyo."
+- Jodho kahe "Tame daahya, ek chakli mate bhramand bodyu eva daahya. Tame bau daaahya ho to aa bakrao ma, **Koyli, Kaatudi, Jaambudi kon e kaho**."
+- MuktaNand swami thapko aapta kahe ke Mahraj to antaryaami chhe.
+- Maharaj e Jodha ne samadhi karavi ane Akshardham nu sukh apyu.
