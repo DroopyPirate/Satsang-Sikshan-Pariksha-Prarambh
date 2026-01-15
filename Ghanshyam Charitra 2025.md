@@ -443,3 +443,20 @@
 - E pachi Ghanshyam badha ne laine thodek dur jaine, nadi ma padela mota patthhar par badhane besadya.
 - **Ghanshyam ane RaamPratap bhai pathar ni Chhipar (છીપર)** upar betha. Ghanshyam e **jamna hath thi banne pathhar ne sparsh karyo**.
 - Pathar hodi ni mafak tarva laagyo ane saame kathe pochi gaya.
+
+
+# 34 Maasi ne Parcho
+
+- Chapaiya ma ek vaar ghare, **BhaktiMata na behno** (Ghanshyam na **Maasio**) - **VasantaaBaai** ane emna putra **MaanekDhar**, **ChandaaBaai** ane emna putra **Basti** avya hata.
+- **Ghanshyam, Ichharaam ane DharmaPita** **FirozPur** gaya hate e saanje pacha aya.
+- Maasio e Ghanshyam ane IchhaRaam ne **pataasa apya**.
+- Biji savare vehla, banne maasio ghanti upar lot dadta hata.
+- Vehli savar hati etle **ChandaaMaasi** e **Tulsidaas na prabhtiya** ni pehli liti gaayi "**Utho laal prabhat bhaya hai**."
+- Etle ma ghashyam baju na palang par thi bolya "Bolo maasi, hu to jaguj chhu, mane kem jagado chho, su kaam chhe kaho?"
+- Banne maasi kahe, tamne kon bolave chhe.
+- Ghanshyam e hath lambo kari ne ghanti par mukyo ane ghanti farti bandh thai gai. Maasio hath hatavano prayatna karyo pan khase nai.
+- Ghanshyam kahe ke "Em kaho ke mane bolavta hata to hath uthavu."
+- Etla ma tyathi BhaktiMata avta hata, etle Maasio e Ghanshyam ni fariyaad Maata ne kari.
+- Mata ke kahyu ke Ghanshyam haath lai lyo. Ghanshyam e maata ne kidhu ke tame maasi ne pucho ke kone uthadta hata?
+- **VasantaMaasi bolya** ke "Are bhai tamnej agadiye chhiye bas, lot dadva do."
+- Ghanshyam kahe lo pelaj kai didhu hot evu to atyare lot dadva nu modu na thaat.

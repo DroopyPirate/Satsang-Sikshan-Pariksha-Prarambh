@@ -155,3 +155,13 @@
 - Jodho kahe "Tame daahya, ek chakli mate bhramand bodyu eva daahya. Tame bau daaahya ho to aa bakrao ma, **Koyli, Kaatudi, Jaambudi kon e kaho**."
 - MuktaNand swami thapko aapta kahe ke Mahraj to antaryaami chhe.
 - Maharaj e Jodha ne samadhi karavi ane Akshardham nu sukh apyu.
+
+
+# 14 Bhaal ni Bibdi
+
+- **Bhaal desh** ma ek **musalmaan baai** rahe enu **naam Sodhi**. Ene **bavadiyo ropelo**. Ema datan ni dadkhi thaai. Pan e baai koi ne daatan ape nai. **Ato khuda maate chhe** em kahe.
+- Maharaj e baaju avya. Tadaav ma naya ane **SuraaKhaachar ne daatan sodhva moklya**.
+- **Bhaal suko desh** daatan malej nai to pan maharaj e SuraaKhaachar ne moklya.
+- SuraaKhaachar e bibi ne kidhu ke Amara bhagwan mate daatan apsho? Bibi kahe ke bhagwan hoi to jaate apva avis.
+- Bibi e maharaj ne daatan apyu ane kahyu ke "**He Swaminarayan! Mane ant samaye tedva avjo**."
+- Maharaj e bibi na ant samaye Datan lai ne Bibi ne Akshardham lai java avya.
