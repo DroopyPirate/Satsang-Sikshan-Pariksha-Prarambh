@@ -165,3 +165,23 @@
 - SuraaKhaachar e bibi ne kidhu ke Amara bhagwan mate daatan apsho? Bibi kahe ke bhagwan hoi to jaate apva avis.
 - Bibi e maharaj ne daatan apyu ane kahyu ke "**He Swaminarayan! Mane ant samaye tedva avjo**."
 - Maharaj e bibi na ant samaye Datan lai ne Bibi ne Akshardham lai java avya.
+
+
+# 15 Aksharbrahma Gunatitanand Swami
+
+- **Kathiyavaad ma Jodiya bandar paase Bhaadra gaam**. Gaam ne padare **Und nadi**.
+- **BholaNath Sharma ane SakarBaai**, **AtmaaNand Swami na shishya**. Ghana varshe pan putra nai. **AtmaNand swami e ashirwaad apela** "**Tamare tya AksharBrahma janma leshe**"
+- **Samvat 1841 Aaso Sud Punam (Sharad Punam)** aksharbrahma e janma lidho. **RamaNand swami temnu naam Mudji paadyu**.
+- **4 varsh ni ummar. Doodh mangyu**. Thakorji ni dharavi ne apu. Ame pie chiye e bheda thakorji pan pive chhe. Mata ne mudji ma thakorji na darshan thaya. **Thakorji na hoth par dudh ni rekha hati.**
+- Ek divas savare mudji mata ne kahe "**Janoi na gito gao**. Ayodhya ma Dharmdev na ghare Ghanshyam prabhu ne janoi devai chhe. E to amara bhagwan chhe."
+- Mata ghani mudji ne **nana bhai sundar ji nu paarnu hichkaavta**. Mudji kahe "Mare **mota thai ne sadhu thavu chhe ane sundarji pan sadhu thase**."
+- Ek divas **khetarma sherdi na vaadh ma mudji kaam karta hata**. Maharaj e darshan apya ane kahyu "**Apde su karva avya chhiye ane shu thaai chhe? Aa jagat ma BrahmaTej to sukai gayu chhe, have chaali nikdo.**" Mudji ghar chhodine Maharaj paase chalya gaya.
+- **Samvat 1866 Posh Sud Punam (Poshi Punam)** na divse **Dabhaan ma yagna kari** ne Maharaj e  mudji ne diksha aapi ane **GunatitAnand Swami naam padyu**.
+- Junagadh ma mandir nu kaam chalu thayu. Maharaj e MuktaNand Swami ne kahyu ke Bhaadra vada Gunantitanad Swami ne bolavo. **Pote pehrelo haar kadhi ne GunatitaNanad Swami ne pehravyo** ane kahyu "**Aa amara Junagadh na Mahaant**."
+- Maharaj swadham javanaa hata etle Gunatitnand swami ne bolavya. **Swami roj na saath mile chaline avya**. Badha ne kahyu ke **dar varshe junagadh jai ne swami no samagam karjo**.
+- Ughada page chalta, thanda paani e snaan karta. Saaadu bhojan khata.
+- Acharya Maharaj ane Gopalanand swami jeva mota santo pan swami no samagan karva avta.
+- Swami **mukhya shishyo Bhagatji Maharaj, Jaagaa Bhagat, Baad MukundDaasji, YogeshvarDaasji ane RaghuVeerJi Maharaj.**
+- Gunantitanand Swami Junagadh ma **40 varas rahya**. **Farta Farta Gondal avya**.
+- **Ashaadhi Samvat 1924 Aaso Sud Baaras raate Pona vagye dhaam padharya**.
+- Jya **agnisanskaar apyo tya. Shastriji Mahaaraj e deri baandhi** je atyare **AksharDeri** chhe.

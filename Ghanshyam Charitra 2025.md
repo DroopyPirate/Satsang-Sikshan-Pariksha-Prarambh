@@ -460,3 +460,14 @@
 - Mata ke kahyu ke Ghanshyam haath lai lyo. Ghanshyam e maata ne kidhu ke tame maasi ne pucho ke kone uthadta hata?
 - **VasantaMaasi bolya** ke "Are bhai tamnej agadiye chhiye bas, lot dadva do."
 - Ghanshyam kahe lo pelaj kai didhu hot evu to atyare lot dadva nu modu na thaat.
+
+
+# 35 Badhi rasoi jami gaya
+
+- Ayodhya gaya, thoda divas ma **RaamNavmi** hati. Badha saga sambandhi ne bolaya. RaamNavmi ujavi, akho divas kirtan bhajan kari.
+- **Bija divse paarna** ni taiyari maate **SuvaasiniBhaabhi ane BhaktiMata** uthi ne rasoi banai. Ane thakorji ne dharavi.
+- Ghanshyam kahe "Mane bhukh laagi chhe"
+- BhaktiMaata e thaad ma thi darek vaangi thodik thodik kaadhi ne api ane Ghanshyam jamva lagya.
+- E patyu etle ghanshyam thaad khai gaya ane pachi vasano ma jetlu hatu **badhu khai gaya**.
+- BhaktiMata thodik vaar pacchi aavya ane joyu to badhuj khaali. Teo bahar ayi ne DharmDev ne bolai ne kahyu ke badho saamaaan fari thi lai avo, Ghanshyam badhu jami gaya chhe. Mehemano ne su jamadsu?
+- Ghanshyam kahe ke badhu em nem to chhe. BhaktiMataa ane SuvaasiniBhaabhi manya nai. Ghnahsyam e hath pakdi ne mata ne andar lai gaya. **Badhu em nu em hatu.**
