@@ -471,3 +471,25 @@
 - E patyu etle ghanshyam thaad khai gaya ane pachi vasano ma jetlu hatu **badhu khai gaya**.
 - BhaktiMata thodik vaar pacchi aavya ane joyu to badhuj khaali. Teo bahar ayi ne DharmDev ne bolai ne kahyu ke badho saamaaan fari thi lai avo, Ghanshyam badhu jami gaya chhe. Mehemano ne su jamadsu?
 - Ghanshyam kahe ke badhu em nem to chhe. BhaktiMataa ane SuvaasiniBhaabhi manya nai. Ghnahsyam e hath pakdi ne mata ne andar lai gaya. **Badhu em nu em hatu.**
+
+
+# 36 Gauri Gaai ni Shodh ma
+
+- Ghanshyam ne **Gomti gaai bau vaahli**. Gomti ne **2 vachardi, Gauri ane Kapila**.
+- Ek sanje **govaad** gaayo ne charavi ne pacho layo ane joyu to **Gauri male nahi**. Govad e pacha jaine tapaas kari pan gauri na madi etle **Dharmdev ne kahyu**.
+- **Dharmdev, RaamPratap ane Ghanshyam laine shodhva nikdya** ane andharu thai gayu. **Poonam ni raat hati. Shodhta jungle ma ghane dur gaya**,
+- Thodi vaar raine saad apyo to jhaadi mathi Gauri dodti avi. Ghanshyam e ena matha par hath mukyo ane chare pacha ghare java lagya.
+- Rasta ma Dharmdev ubha rahi gaya. Ghanshyam e puchyu, Dharmdev e aangdi thi batavyu.
+- **Jhaad na niche vaagh suto suto bagasa khato hato**. Manaso ni gandh sunghi ne ene **traad nakhi**.
+- Ghanshyam vaagh agad dodya ane drashti kari. Vaagh Ghanshyam na **page laagyo** ane **pradakshina karine sui gayo**.
+- Baar nikdi je gaam avya tya sagao na ghare raine bije divse ghare gaya.
+
+
+# 37 Paani upar chalya
+
+- **Ghanshyam, mitro ane IchhaRaam** sathe **Meen Sarovar ma ramva**, nahva gaaya hata. Pacha avta **musad-dhaar varsaad** padva lagyo.
+- Chaare baju pur aavi gayu. Badha rova lagya.
+- IchhaRaam Ghanshyam ne kahe ke "**Ghare kemna jaisu? Hu to aatla paani ma dubi jaav**."
+- Ghanshyam  e kahyu "**Badha jhaad thi niche utro**. Mara pachad chalya avo. **IchaRam tame mari dhoti pakdi chalo, temni pachi VeniRaam dhoti pakdi chale, pachi Praag, em badha chalo**. Apde **paani upar thi chali ne jata rehsu ane apda par varsad pan nahi pade.**"
+- Badha ne 2 baju varsaad pade pan koini upar nai. Ane paani avyu tyare ghanshyam ane badha **paani thi adhhar upar chale**.
+- Saame ne kanthe badha na Mata Pita badako ne sodhva nikdela emne aa joyu ane joyu ke **Ghanshyam mathi tej nikde** chhe. Ghanshyam ne badha e pranam karya.
