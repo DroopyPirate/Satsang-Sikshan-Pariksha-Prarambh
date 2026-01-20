@@ -493,3 +493,14 @@
 - Ghanshyam  e kahyu "**Badha jhaad thi niche utro**. Mara pachad chalya avo. **IchaRam tame mari dhoti pakdi chalo, temni pachi VeniRaam dhoti pakdi chale, pachi Praag, em badha chalo**. Apde **paani upar thi chali ne jata rehsu ane apda par varsad pan nahi pade.**"
 - Badha ne 2 baju varsaad pade pan koini upar nai. Ane paani avyu tyare ghanshyam ane badha **paani thi adhhar upar chale**.
 - Saame ne kanthe badha na Mata Pita badako ne sodhva nikdela emne aa joyu ane joyu ke **Ghanshyam mathi tej nikde** chhe. Ghanshyam ne badha e pranam karya.
+
+
+# 38 Chor chonti gaya
+
+- RaamPratap bhai ane Ghanshyam e vaadi ma **jhaad par fanas ugaadya**. **Paakse tyare Mata Pita ne jamadsu**.
+- Ek raate chor avya fanas todva. Panas paaki gayela. **Banne chor fanas ne adya to emna haath choti gaya**.
+- Savare DharmPita vaadi ma **loto laine daatan karva avya**. Choro ne thayu ke RaamPratap avse to maari maari ne hadka khokhra kari nakhse.
+- Banne chor e bhagwan ne prarthana kari ke ame havethi chori nai kariye.
+- Etla ma RaamPratap ane Ghanshyam avya. RaamPratap laathi ne maare e pela, Ghanshyam e atkaavya.
+- DharmPita ne lai Ghanshyam jhaad najik gaya. Choro e sachu kai ne maafi mangi. Ghanshyam e drashti kari ke hath chuti gaya.
+- Niche utrya. Ghanshyam e kidhu ke have chori na karta, e to MahaPaap chhe. **Banne ne  ek ek fanas aapi ne vidaay karya.**

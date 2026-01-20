@@ -59,7 +59,8 @@
               "title": "Release Notes 1.10.6"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -207,8 +208,10 @@
       "bases:Create new base": false
     }
   },
-  "active": "0e19401b6a96642d",
+  "active": "42a2516ab86e6d1e",
   "lastOpenFiles": [
+    "Assets/Swami ni vaat 1.png",
+    "Assets",
     "Kishore Satsang.md",
     "Ghanshyam Charitra 2025.md"
   ]
