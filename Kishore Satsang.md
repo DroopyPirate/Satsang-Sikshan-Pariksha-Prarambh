@@ -185,3 +185,15 @@
 - Gunantitanand Swami Junagadh ma **40 varas rahya**. **Farta Farta Gondal avya**.
 - **Ashaadhi Samvat 1924 Aaso Sud Baaras raate Pona vagye dhaam padharya**.
 - Jya **agnisanskaar apyo tya. Shastriji Mahaaraj e deri baandhi** je atyare **AksharDeri** chhe.
+
+
+# 16 Swami ni vaato
+
+- Swami e Maharaj ne puchyu "**Maare shu karvu? Dhyan karvu, seva karvi,  aatma rupe vartvu ke vaato karvi?**" Maharaj - "**Tamaree vaato kari ne badhane gnan apvu ane bhagwan odkhavva**."
+
+(1) ![[Swami ni vaat 1.png]] 
+
+- Gondal ma Yogiji Maharaj ne **kaado ssanp kardyo**. **BhaktiVallabh swami e joyu** ke jheri saanp hato.
+- Temne **Shaastriji Maharaj ne kidhu**. Swami e kidhu ke badha **AksharDeri ma dhun karo**.
+- **Gondal na raja e doctor moklavyo**. Swami e kidhu amare dava nathi karvi.
+- **12 kalaake jher utari gayu. Daaba hath ni pehli aangdi nu haadku vadi gayu**.
