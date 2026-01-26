@@ -504,3 +504,16 @@
 - Etla ma RaamPratap ane Ghanshyam avya. RaamPratap laathi ne maare e pela, Ghanshyam e atkaavya.
 - DharmPita ne lai Ghanshyam jhaad najik gaya. Choro e sachu kai ne maafi mangi. Ghanshyam e drashti kari ke hath chuti gaya.
 - Niche utrya. Ghanshyam e kidhu ke have chori na karta, e to MahaPaap chhe. **Banne ne  ek ek fanas aapi ne vidaay karya.**
+
+
+# 39 ૨ Swaroope Darshan
+
+- Mata Pita **DhanTeras na divas thi Annkut utsav ni taiyaari** karva lagya.
+- Diwali na divse - **BhaktiMata, Suvaasini Bhaabhi, Gaam ni behno rasoi karva lagi**
+- **BhakitMata e mithaiyo** banai, **Bhabhi e farsaan** banavya. **RaamPratap bhai vaadi mathi fruits** lai aya. **Ghanshyam ane Pita shangaar karva laagya**.
+- **11 vage annkut mukva no chalu karo. 12 vagta ma mukia gayo**, pachi badhae thaal gayo.
+- Aarti karvani chalu kari, to badhane **ghanshyam aarti karta pan dekhai** ane b.
+- DharmPita joi ne samji gaya ke aato bhagwan j chhe. **Emne moto thaal mangayo Ghanshyam mate**.
+- **Ghanshyam e IchhRaam ne bolai ne thakorji na saame thaal jamva lagya**.
+- **2 vaaga sudhi badhae darshan karya**. Pachi Ghanshyam e **potana hathe badhane prasadi aapi**.
+
