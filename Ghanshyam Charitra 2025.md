@@ -554,4 +554,48 @@
 - DharmPita aa joi chauki uthya. Badha samadhi mathi baar aaine **Ghanshyam ne dandvat karya**.
 
 
-# 43 BhaktiMata
+# 43 BhaktiMata ane DharmPita no Dehotsarg
+
+- Ghanshyam **11 varas na thaya**. **BhaktiMata bimar padya**, pathari maj suve. Trane putra ne bolavi ne **RaamPratap ane Suvaasini Bhabhi ne Ghanshyam ane IchhaRaam ne sambhad karva kidhu**. Banne bhaio RaamPratap ni **aagna ma rahi ne samp ma rahe**.
+- Ghanshyam e BhaktiMata ne **Chaturbhuj Narayanrupe darshhan apya** ane Akshardham ma lai gaya.
+- **6 mahina pachi DharmDev bimaar padya**. Emne trane putra ne bolavya. RaamPratap ne kahyu ke **Ghanshyam to bhagwan chhe ane udaasi mann vada chhe to maari mafak** j banne bhaio ni sambhad karjo.
+- Ghanshyam e pachi potana mathi **tej batavi ne 24 avtaar na darshan karavya** ane Akshardham ma lai gaya.
+
+
+# 44 Ghanshyam no Gruhtyaag
+
+- Ghanshyam **gruhtyaag no laag jota hata**. Ek divaas sansaar thi udaas thai ghanshyam naai dhoi badha **mandir na darshan kari ne pacha avta hata**.
+- Emno **rasto 27 mallo e rokyo**. Ghanshyam e mall jetlu sharir karine badha ne **badha ne fatkaarya**.
+- **Mallo na mata-pita** e **RaamPratap bhai ne fariyaad kari**. RaamPratap bhai e ghanshyam ne **thapko apyo**.
+- Ghanshyam e badhu saambhdi lidhu ane kahyu "**Aaj fari maari koi fariyaad nahi ave**."
+- Vaadu kari ne sui gaya. **3:30 am e uthya. Badho saaman laine nikdya**.
+- Saaman:
+	- Ked par **munj ne mekhla**
+	- Sharir par khali **kopin**.
+	- Pith par **mrugcharma** odhelu
+	- Ek hath ma **maada**. Bija hath ma **Palaash dand**.
+	- Tene chhede Shastra no saar rupi **gutko ane kamandal**.
+	- **BheekshaPatra** ane paani **gaadvanu vastra**.
+	- Gada ma **tulsi ni bevdi kanthi**. Khabhe **janoi**.
+	- **Shaaligram** ane **Baalmukund no batvo**.
+	- Kapaad ma **TilakChandlo**, mathe **jata bandheli** ane **ughada pag**.
+
+
+# 45 Saryu ne Tir-e
+
+- Varni veshe chhana mana chalya. Pachu vadi ne jove ke koi avtu nathi ne emne pachu lai java.
+- **Samvat 1849 Ashaadh Sud Dasham**. Jharmar varsaad paadto hato.
+- Saryu ma pur avelu. Saryu ma jhamplavana ashay thi saryu na tire ubha rahya.
+- Teva ma ek **asur e dhakko maaryo** ane Ghanshyam nadi na pur ma dekhata bandh thai gaya.
+
+
+# 46 Bhabhi no Vilaap
+
+- Ghanshyam savare pathari ma nathi. Vehla nahva gaya hashe.
+- Bapore jamva avya nathi. Mitro ne puchyu emne khabar nathi.
+- Bhabhi ChandaMasi ane LaxmiBaai na ghare sodhva jaai che pan tya nathi.
+- RaamPratap bhai ne khetare thi bolave chhe. Badha sodhva laage chhe.
+- Raatna 12 vaagi gaya nathi madta. Bhai ane Bhabhi banne radta radta bhagwan ne prarthana kare chhe.
+- Bija divse RaamPratap bhai ghod savar ne mokle chhe. To pan madta nathi.
+- Koi ne kai karvanu mann nathi thatu, khavani pan ichha thati nathi. Bhabhi ane IchhaRaam ghani vaar ungh mathi Ghanshyam Ghanshyam kari uthi jaai chhe.
+- 2-5 divas thai jai chhe pan Ghanshyam madta nathi. Akhu ayodhya sunu padi jaai chhe.
