@@ -517,3 +517,41 @@
 - **Ghanshyam e IchhRaam ne bolai ne thakorji na saame thaal jamva lagya**.
 - **2 vaaga sudhi badhae darshan karya**. Pachi Ghanshyam e **potana hathe badhane prasadi aapi**.
 
+
+# 40 Aandhda ne dekhto karyo
+
+- **Chapaiya ghar ni pachad** - **Mahadev nu mandir**.
+- **DeviBaksh naam no Kaayastha** Shankar bhagwan pase prarthana kari ne na mangvanu mangto hato.
+- Ghanshyam ne thayu ke Mare ghar chhodi ne tapp karva javu padse. Ketlaye agnaani loko chhe emnu kalyan karvu chhe.
+- DharmPita e puchyu kem udaas chho - pan Ghanshyam e vaat udadi didhi.
+- Bija divse **VidhyaKund na mandire darshan** karva gaya - **Aandhdo Pujari VrajVihari** Ramayan ni katha karto hato.
+- Ene **Ramayan ane MahaBharat banne modhe**.
+- Katha ma Vanvaas ni vaat avi - Ghanshyam ne pan vann ma tap karvano vichar avyo - Katha rokavi ne vairagya sambandhi prashna puchyo.
+- Bhraman e kidhu ke katha na rokavso khalel pade - Ghanshyam otle jaine betha - Badha e pujari ne kidhu ke emne udaas na karso eto Bhagwan chhe.
+- Pujari Ghanshyam pase aai ne maafi mangi ane kidhu ke hey Prabhu daya karo mane dekhto karo, hu bhajan karis, seva karis.
+- Ghanshyam ne daya aavi - pujari ne mathe hath muki teni saame joyu - **pujari dekhto thai gayo.**
+
+
+# 41 NityaKram
+
+- **4 vage uthi jaay**. Bhagwan nu smaran kare. Mitro sathe **Saryu nadi ma nahva jaay**.
+- **Gaay nu dudh pee** ne **DharmPita sathe abhyaas kare**. Vyaakran, Nyaay, Shaastro, Vedo, Upnishad, Sankhyo Yog, Vedant.
+- **9 vaage** etle Ayodhya na da**rek mandire darshan karva** jaay. Jya **Ramayan ni saari katha chalti hoi tya** katha ma bese.
+- **12 vage ghare aai**, hath pag dhoine **jamva bese**. Pachi **swaadhyaay kare**.
+- **Bapore 3 vaage fari nadi e nahva jaai** ane mitro sathe mandire darshan karva jaai. **Sandhya Aarti Hanuman Gadhi e kare**.
+- Pachi ghare aavi hath pag dhoi **DharmPita sathe vaadu kari** ne DharmPita paase **Ramayan, Mahabharat, Purano na KathaPrasang saambhde**. Pachi sui jaay
+
+
+# 42 Kaashi ma potana Matt nu sthapan
+
+- Ghanshyam **11 varas na thaya**. **ChandraGrahan** avyu. DharmPita anya sambandhi ne laine **Kaashi GangaSnan karva** gaya.
+- DharmPita vidvaan tarike prakhyat. Badha emne madva mate **GoMath ma avva laagya**.
+- Shastrath ne gothvan thai. **Advait Vedanti** kahe "Badhu j Bramha chhe, Bramha j satya chhe, Te sivai badhu mithhya"
+- **Dvait Vedanti** kahe "Na, Bramha, Jeev ane Jagat em saachu chhe."
+- **Ghanshyam** e shastro pramane potano matt sthapyo ane kahyu "**BramhaRoop thai ne ParaBramha ni bhakti karvi ej Mukti No maarg chhe**."
+- Haji Ghanshyam agad bole e pela - **Ghanshyam mathi nikadta tej na karane** badhane **samadhi thai**.
+- Badhane **Ghanshyam ma potana IshtDev dekhaya** - **ShankraCharya, SadaShiv, RaamChandra, Shri Krishna vagere**. Badha e samadhi ma **Ghanshyam nu poojan karyu**.
+- DharmPita aa joi chauki uthya. Badha samadhi mathi baar aaine **Ghanshyam ne dandvat karya**.
+
+
+# 43 BhaktiMata
