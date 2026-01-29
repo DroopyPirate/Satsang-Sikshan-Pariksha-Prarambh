@@ -2,7 +2,7 @@
 # Short Notes
 This will only include Names of people & places and dates etc.
 
-# 1 Ghanshyam no Janma [[Ghanshyam Charitra 2025#1 Ghanshyam no Janma | Go to Chapter]]
+# 1 Ghanshyam no Janma [Go to Chapter](Ghanshyam%20Charitra%202025.md#1%20Ghanshyam%20no%20Janma)
 - Janma - Chhapaiya - Samvat 1837 Chaitra Sud Navmi (Monday, 3rd April 1781) 10:00 pm
 
 # 2 Baad-Prabhu nu Parakram [[Ghanshyam Charitra 2025#2 Baad-Prabhu nu Paraakram | Go to Chapter]]
