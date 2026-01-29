@@ -2,17 +2,17 @@
 # Short Notes
 This will only include Names of people & places and dates etc.
 
-# 1 Ghanshyam no Janma [Go to Chapter](Ghanshyam%20Charitra%202025.md#1-Ghanshyam-no-Janma)
+# 1 Ghanshyam no Janma
 - Janma - Chhapaiya - Samvat 1837 Chaitra Sud Navmi (Monday, 3rd April 1781) 10:00 pm
 
-# 2 Baad-Prabhu nu Parakram [[Ghanshyam Charitra 2025#2 Baad-Prabhu nu Paraakram | Go to Chapter]]
+# 2 Baad-Prabhu nu Parakram
 - Kalidatt - Krutyao -> Amba nu vann -> HanumanJi
 - Kalidatt - Kotra -> Ghanshyam e vaki najar kari -> Kotra badi gai.
 
-# 3 Raamdayad ne Darshan [[Ghanshyam Charitra 2025#3 Raamdayad ne Darshan | Go to Chapter]]
+# 3 Raamdayad ne Darshan
 Ghanshyam 2.5 months age -> Dharmdev na mitra Raamdayad
 
-# 4 Prabhu nu Naam paadyu [[Ghanshyam Charitra 2025#4 Prabhu nu Naam paadyu | Go to Chapter]]
+# 4 Prabhu nu Naam paadyu
 - Ghanshyam 3 months age.
 - Maarkanday muni
 	- Kark raashi -> Hari, Shyam rang -> Krushna = HariKrushna
@@ -20,71 +20,71 @@ Ghanshyam 2.5 months age -> Dharmdev na mitra Raamdayad
 	- Dharm nu sthapan, dukho no nash, kirti felase, 
 	- Samadhi karavse, udhar karse, bhagwan nu bhajan karvase, sukhi karse
 
-# 5 Putra ni Pariksha [[Ghanshyam Charitra 2025#5 Putra ni Pariksha | Go to Chapter]]
+# 5 Putra ni Pariksha
 - sona-mahor, pustak, ane nani talvaar -> pustak selected
 
-# 6 Ghanshyam e kaan vindhavya [[Ghanshyam Charitra 2025#6 Ghanshyam e kaan vindhavya | Go to Chapter]]
+# 6 Ghanshyam e kaan vindhavya
 - Ghanshyam 7 months age.
 - Mata Ghanshyam laine -> Aambli na jhaad ni osari e
 - Tej - adrashya - aambli ni daadkhi par. RaamPratap bhai avya
 - Bhai upar chadya - biju swaroop adrashya. Gaud apo to vindhavu kaan.
 - Mata - Mata na khoda ma gaud khata kaan vindhaya
 
-# 7 Siddhio Prabhu ni Seva ma [[Ghanshyam Charitra 2025#7 Siddhio Prabhu ni Seva ma | Go to Chapter]]
+# 7 Siddhio Prabhu ni Seva ma
 - Maami - Laxmibaai. Sheero shanti thi banavjo - Mata ne bhukh laagi.
 - 8 siddhio - 32 pakwaan.
 
-# 8 Khichdi ni badle DudhPaak [[Ghanshyam Charitra 2025#8 Khichdi ni badle DudhPaak | Go to Chapter]]
+# 8 Khichdi ni badle DudhPaak
 - Khavama - taadhi khichdi api.
 - Gomti naam ni gaay. Mata thi dudh na nikdyu. Ghansyam e pavalu dharyu.
 - 2 doni bharai gai. Mata e raaji thai ne Ghanshyam ne dudhpaak banai apyo.
 
-# 9 Vaaland ne Chamatkaar [[Ghanshyam Charitra 2025#9 Vaaland ne Chamatkaar | Go to Chapter]]
+# 9 Vaaland ne Chamatkaar
 - Ghanshyam 3 years age.
 - (purva) east disha - Amai Vaaland - Valand ne na dekhai bija ne dekhai.
 - Mata e kidhu "Adhi hajamat vadu modhu saaru na lage."
 - Narayan sarovar ma snaan. Brahmano ne pataasa.
 
-# 10 Kaalidatt maran ne sharan [[Ghanshyam Charitra 2025#10 Kaalidatt maran ne sharan | Go to Chapter]]
+# 10 Kaalidatt maran ne sharan
 - Narayan sarovar -> purva (East) -> Ambavaadi -> aambli-pipdi ramva.
 - Kalidatt - hath laambo karyo - Ghanshyam drashti - kaalidatt badva laagyo.
 - Kalidatt - vaavajhodu. Badako vad na jhaad ma chupaya.
 - Ghanshyam amba na jhad niche ane upar - Kalidatt e sharir motu karyu ane padyo.
 - Ghanshyam dadkhio na niche - najar kari prabhu e - jhaado sathe athdato mari gyo.
 
-# 11 Taadhe paani e badiya gaya [[Ghanshyam Charitra 2025#11 Taadhe paani e badiya gaya | Go to Chapter]]
+# 11 Taadhe paani e badiya gaya
 - Grishma (Unado, summer) rutu - prabhu ne taav.
 - Chanda maasi - badiya nikdya chhe.
 - LaxmiBaai - 20 divas sudhi navdavta nai - baar na java deta.
 - Naya vagar na chale - thanda pani e nahya - badiya jata rya - khali jhaka dagha
 
-# 12 Maachalio sajivan kari [[Ghanshyam Charitra 2025#12 Maachalio sajivan kari | Go to Chapter]]
+# 12 Maachalio sajivan kari
 - Veni, Madhav, Pragna - Meen Sarovar - Vadd na vrukshe kapda kadhya.
 - Machimaar - Prabhu no sankalp - machlio jivti.
 - Machimaar gusse - Prabhu e yamraaj nu roop lidhu - 18 hath
 
-# 13 Chaklaao ne samaadhi [[Ghanshyam Charitra 2025#13 Chaklaao ne samaadhi | Go to Chapter]]
+# 13 Chaklaao ne samaadhi
 - Targam na padare kethtar - Daangar no paak taiyar.
 - Prabhu jami - topi, makhmal ni mokjdi, soti lai khetare.
 - Saad paadi badha chalka - samadhi.
 - MaadhavRaam Shukla nu khetar - Raghuveer ane BakusRaam jode ramva laagya.
 - Sanje bhai ane pita pacha aya - Ghanshyam saad padyo - chakla udi gya
 
-# 14 Vaandra ne Samaadhi [[Ghanshyam Charitra 2025#14 Vaandra ne Samaadhi | Go to Chapter]]
+# 14 Vaandra ne Samaadhi
 - Asuro no traas - Migrate to Ayodhya
 - Ayodhya - Barhatta sheri - navu ghar
 - Saanje jamta - jhaad thi vandro - 20 rotli lai gyo
 - Drashti - samadhi - 3 divas sudhi samadhi
 - pachi ghare aai page lagi - prabhu e ahirwad apya - khavanu apyu
 
-# 15 Vaandrao ne methipaak chakhadyo [[Ghanshyam Charitra 2025#15 Vaandrao ne methipaak chakhadyo | Go to Chapter]]
+# 15 Vaandrao ne methipaak chakhadyo
 - Prabhu - puri dahi jamva betha.
 - Vandro - puri khechi - aambli na jhade
 - Prabhu - hath lambayo - vandra ne pachadyo.
 - Vandro chichiyari - bau vandra bhega thai gya - ghanshyam ne gherya
 - Pita laakdi leva gaya - Prabhu vandra jetla swroop kari vandra fatkarya.
 
-# 16 Raamdatt ne keri chakhadi [[Ghanshyam Charitra 2025#16 Raamdatt ne keri chakhadi | Go to Chapter]]
+# 16 Raamdatt ne keri chakhadi
 - Prabhu - mitro (Veni, Madhav, Praagna) - sarovar snaan ane ramat
 - Ambavadi - keri tode prabhu - Bhramno no sang - agevaan Raamdatt.
 - Prabhu jhaad par thi - dori ne loto lai lidho.
