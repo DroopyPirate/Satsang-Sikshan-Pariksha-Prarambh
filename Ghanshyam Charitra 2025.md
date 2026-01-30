@@ -90,6 +90,131 @@ Ghanshyam 2.5 months age -> Dharmdev na mitra Raamdayad
 - Prabhu jhaad par thi - dori ne loto lai lidho.
 - Badha bamano upar chadya - niche thi pathra marva kidha prabhu e.
 
+# 17 Mumukshu kai disha ma che?
+- Chhapiya - peepda nu jhaad - paschim disha ma joya kare.
+- Veni e puchyu paschim kem jovo cho.
+
+# 18 Ek sathe anek Mandire darshan
+- Pela RaamPratap bhai Hanuman Gadhi gaya - tya RaamKatha.
+- Pachi bije mandire gaya - tya pan prabhu RaamKatha haambre.
+- Kutuhalta na karane badha mandire jova gaya - badhej prabhu katha hambre
+
+# 19 Bhutiyo Kuvo
+- Ayodhya - Navab no traas - Prabhu and Family migrated to Teenva Gaam.
+- Prathit Pande and VachnaBaai na ghare. Kuva ma 1000 bhut rahe.
+- Suryast pachi - Mata pani bharva - Ghado bhuto e pakdi lidho.
+- Ghanshyam - next day kuva ma - prabhu ne pakdya - tej kadhyu - backstory puchi.
+- Baadshah jode jhagdela ema marya - badha paapi etle bhut thayela.
+- Prabhu e kalyan kari Badrikashram moklya.
+
+# 20 Mallo no Parajay
+- **RaamGhaat** - roj sanje - mitro sathe kusti.
+- Strongest mall - **Nepal no Mahabali** - prabhu e haravyo.
+- **BheemSang, DilliSang, MaanSang** - **Raja RaaiDarshan Sinh** - ame Ghanshyam ne haraiye.
+- Raja - eto bhagwan chhe. Na manya mallo - kusti gothvi.
+- Barhatta Sheri - Dharmdev na ghar - Ambali vada kuva na medan ma.
+- Dharmdev chinta - prabhu mota mall nu swaroop dekhadyu.
+- **BheemSang - jamno pag** - **100 hathi** nu bad. Prabhu e ene aambli na jhaad e fekyo.
+- Trane, prabhu no pag kheche - saakad tuti - trane padya.
+- Raja - Pita ane Prabhu ne - hathi ni savari karavi - mallo pase maafi mangavi.
+
+# 21 Kandoi ne Parcho
+- Suvaasini Bhabhi rasoi - prabhu ne bhukh
+- Bhabhi - chana ke sukhdi apu - prabhu ne penda khava.
+- Lot bandhta - vinti muki - prabhu viti lai bhagya.
+- Orda ma puryu - prabhu chauk ma.
+- Vaadi e ujavni - RaamPratap bhai e chamaat mari.
+- Kandoi - badhi mithai prabhu lai gaya - andar badhi em ne em.
+- Vinti laine pacha ghare
+
+# 22 Khaapa Talavdi
+- Prabhu - Bhai ane Bhabhi sathe - **Targaam**.
+- Ghar pase - talavdi - ghaas - govado gaai charave.
+- Prabhu e saad padyo - gaai badhi prabhu jode bhegi thai gai.
+- Aambli-pipli - prabhu padya - jamna pag na sathad - khaapo vagyo.
+- **Sukhnandan** - RaamPratap ne bolaya.
+- Devo avya- **AshwiniKumar** ne bolaya - dava ane paato.
+- Bhai e puchyu pato kone? - Veni kahe AshwiniKumar e
+- Bhabhi e pato kholyo ghare - ghaa no nishan biju kai nai.
+
+# 23 Sod Chinho
+- Prabhu family + VasantaBaai & ChandaMaasi - sathe tirth yaatra.
+- Gunda gaam - saanj arti - thakorji e prabhu ne haar perayo.
+- Raja GumaanSinh - savare 10 vage hajar thavu - Pita ane 3 putro.
+- Raja - if god - padchayo na hoi - ane 16 chinhi hoi
+- Chogan ma - padchayo nai - 16 chinho joya.
+- Raani Kuvarbaa ane raja - prabhu ni puja arti - makhmal ni sonani bharatwadi topi ane survaad.
+- VasantaBaai Icharam ne tede - bhaar vadharyo - Mata e kidhu prabhu ne upado.
+- Bhaar na lagyo pachi Icharam no pan bhaar na lagyo.
+- Lucknow ane Kanpur thai Ayodhya.
+
+# 24 Ghanshyam e hinsaa bandh karavi
+- Dharmdev na **saadu bhai BaldiDhar ane emna MorliGangaDhar** - Raja na sipahi.
+- Raja nu **lashkar** - **BallamPadhri gaam avyu** - paadare bagicha ma.
+- Tambu - hinsa - sankalp - hathi ghoda dodya.
+- Raja dhoti chhuti gai - pipda na jhade santayo.
+- Prabhu jhaad ma pravesh - raja e maafi mangi.
+
+# 25 Mahaavat ni Rakshaa kari
+- **Baldevji Seth** - hathi paadyo - mahaavat rakhyo.
+- Mahaavat - **ghee ni mithaio chori le** - hathi jove.
+- Sarovar snan - hathi e sundh uchi kari.
+- Prabhu ane pita kinare. Prabhu biju swaroop sarovar ma utaryu.
+- Mahaavt ni raksha - prabhu hathi ne baar lavya - mahaavat maafi mangi - abhar manyo
+
+# 26 Navi Batreesi
+- Prabhu -> Bhabhi - sheero apjo - dadh dukhe chhe.
+- 2 kodiya khai - IchaRam ne sheero apyo.
+- Rasod pachad - fadiya ma - prabhu e daat badha dhila kari didha.
+- Bhabhi ne kai badha daat khechai kadhya - bhabhi dari gya - mata aya.
+- Navi Batreesi aai gai - juna daat moti - hath ucho -  MaanSarovar na Raajhanso
+
+# 27 BaadMitro ne jamaadya
+- Chhapaiya - Meen Sarovar - Veni, Madhav, Pragna, Sukhnandan - ramta 4 vagya.
+- Prabhu - saanj sudhi ramo to jamvani vyavastha karu.
+- Amba ni daad par rumaal bandhyo.. Ramya. VeniRaam - prabhu mithaio khavdavo.
+- Prabhu rumaal kholi - mithaio kadhva lagya - badha ne em ke kemnu.
+- Prabhu - badha besi jao - 8 siddhio, 32 pakwaan, sonani ni jhaari ma thandu paani.
+
+# 28 Hajaaro ne jamaadya ane Abhimaan todyu.
+- Sanyasi ni jamaat Chhapaiya - 1000 sadhu - Khaapa Talavdi rokaya.
+- Naai dhoi - 5 agevaan gaam ma - sidhu samaan leva.
+- Gaam Dhani MotiBhai - gabhrai Tarvaadi gaam jata rya.
+- Gaam ma puchyu - mota sajjan kon - Dharmdev jode mangyu.
+- 100 sadhu jetlo saman chhe - tamaarej apvu padse.
+- Prabhu e kidhu bhabhi saman to kadhu - 1000 nu nikdyu.
+- Pita e kothar ma joyu - badhu emnu em
+
+# 29 LakshmiBaai ne Chamatkaar.
+- VeniRaam na ghare - Prabhu ane Veni - dahi sakar khava lagya.
+- LaxmiBaai dana vinta hata - andar aya - baari thi bhagi gaya.
+- LaxmiBaai - complain to Mata. Ghanshyam evu na kare.
+- Thoda divas pachi fari - LaxmiBaai e ghanshyam ne baandhi didha.
+- Gaam ma bumo - chor pakdayo - badha jova aya - VeniRaam bandhelo.
+- Prabhu gau khata khata aya - badha hasi ne ghare gaya.
+
+# 30 Ekaadashi no Mahima
+- Ayodhya ma mandire darshan - Mahant MohanDaas RaamCharit ni katha.
+- Vaat ayi - 1000 AshwaMegh jetlu fad. Prabhu e puchyu - loko kem nathi karta.
+- Jaggannath Puri - Ekadashi ne uchi bandhi tyarthi - jene khava na made e kare.
+- Prabhu - khoti vaat - paap lagse. MohanDaas ghusse.
+- Prabhu ek najar - Jampuri ma yamduto no maar - maafi - bhul swikari.
+
+# 31 Ghanshyam ne Janoi aapi
+- Prabhu **7 years age** - Gaam na **Gor HariKrushna Upaadhyay**.
+- **Faagan Sud Dasham (Samvat 1845, Monday).** **Leemda niche mandap bandhyo**.
+- RamBali hajam - mundan karyu. Bhramchari vesh - mekhlaa, palaash, bhiksha patra.
+- **Badvo dodva** - chauk ma - Mama **VashRaam Bhaai** - pakdi na sakya - Mama e prarthana
+- Prabhu vichare - himalay vann ma jato rau.
+- Mata-Pita no dosh nathi - vichari pacha aya - Mama e **5 rupiya apya** - Ghee gaud bhaat jamya.
+
+# 32 RaamChandra rupe Darshan
+- Meen Sarovar - ramva. Paani ma pakad daav - prabhu sarovar na tad ma behi gya.
+- Mitro e kinare - Manchhaa naam na Dhobi ne kidhu - dubkio mari sodhe - na male
+- Ek badak - Mata-Pita-Bhai ne bolai layo. Badha chinta kare.
+- Mata-Pita ne chinta ma joi - upar aya - paani par chalya - RaamChandra rupe darshan.
+- Kem chinta - niche besi ne maru kaam karto to.
+
 
 ---
 
