@@ -1,5 +1,55 @@
 
 
+
+# **Short Notes**
+# 16 Swami ni vaato
+- Vaat - 1
+	- Gondal - mandir kaam chale - kaado sanp yogiji ne kadyo
+	- **BhaktiVallabh swami** e joyu - jheri saap
+	- Shastriji Maharaj - Gondal deri ma dhun karo
+	- Gondal raja e doctor mokalyo - doctor nai, dhun karo
+	- **12 kalake** jher utryu. **Daba hath ni pehli angdi** vadi gai.
+- Vaat - 2
+	- Gunatitanand Swami - shishya - BaalMukund Swami - ચલાળા ma vaat kari
+	- badha santo - avu shakya? - swami e kidhu chalo bhajan kariye
+	- 11:00 11:30 e badha ne shanka thai - 12 vage - Gathiya, gaudpapdi, laadu
+	- Jaan laine Amreli jata ta - jhaad niche jamvani taiyari - koike santo mandire chhe em kidhu
+- Vaat - 3
+	- Patel nu udaaharan. Akha gaam no saaman lai aya. Potano saman bhuli gya.
+- Vaat - 4
+	- Bhadli na Naja Bhakt - Govadiyao no traas - migrate to Bhoira gaam
+	- Raja VaasurKhachar - Swaminarayan bhagwan hoi to kale aiya - naito dhichaan bhange
+	- Naja bhakt prarthana. Maharaj Visnagar thi nikdya. Vadhvaan agad nadi ma pur. Upar chali ne aya.
+	- Maharaj e charan ne moklyo - bhagwan aai gya chhe.
+	- Naja ane bhagwan darbar ma - raja badha ne mare - Yamdutt no maar khavdayo
+- Vaat - 5
+	- Kodi no chhokro - Chibhdu - 10 sher sakar bhet
+	- Vaniyo - bija divse - gaadu bhari ne chibhda - Maharaj - nadi ma nakho maachla khai jase
+
+
+# 17 ShastriJi Maharaj
+- Samvat 1921, Maha Sud Paacham (Vasant Panchami)
+- Mehdaav - DhoriBhaai ane HetBaa. - Dungar Bhagat
+- Pello number. Dhud mathi mandiro bandhe.
+- 17 varsh ni umare gruhtyag - VignaaNand Swami na shishya.
+- Samvat 1939 Kaartik Sud Paacham - VihariLaalJi Maharaj - diksha - YagnaPurush daas.
+- Sanskrit - vidvaano ne charcha ma haraave - etle ShastriJI Maharaj.
+- BAPS sthaapna - Bochasan, Sarangpur, Gondal, Atlaadra, Gadhda.
+- Samvat 2007 Vaishakh Sud Chauth - Sarangpur - antardhaan
+
+
+# 18 Gharma ane Shada ma Vartnuk.
+- General dos and donts
+
+
+
+
+
+
+
+
+
+
 # 1 Bhagvan ni Bhet
 
 - Bhagvaan e apan ne hava, paani, khorak, kapda, surya, chandra, fad, ful, vanaspati, aankh, naak, kaan, hath vageru kevu sundar ane mafat aapyu chhe.
@@ -197,3 +247,13 @@
 - Temne **Shaastriji Maharaj ne kidhu**. Swami e kidhu ke badha **AksharDeri ma dhun karo**.
 - **Gondal na raja e doctor moklavyo**. Swami e kidhu amare dava nathi karvi.
 - **12 kalaake jher utari gayu. Daaba hath ni pehli aangdi nu haadku vadi gayu**.
+
+(2)
+![[Swami ni vaat 2.png]]
+
+(3)
+![[Swami ni vaat 3.png]]
+
+(4)
+![[Swami ni vaat 4.png]]
+

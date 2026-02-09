@@ -22,30 +22,35 @@
             }
           },
           {
-            "id": "02ace9a697149636",
+            "id": "25282358732388ef",
             "type": "leaf",
             "state": {
-              "type": "release-notes",
+              "type": "markdown",
               "state": {
-                "currentVersion": "1.11.4"
+                "file": "Kishore Satsang.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-book-up",
-              "title": "Release Notes 1.11.4"
+              "icon": "lucide-file",
+              "title": "Kishore Satsang"
             }
           },
           {
-            "id": "ddf3c121160f5e5c",
+            "id": "83761ad53ab5729c",
             "type": "leaf",
             "state": {
-              "type": "release-notes",
+              "type": "markdown",
               "state": {
-                "currentVersion": "1.10.6"
+                "file": "YogiJi Maharaj.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-book-up",
-              "title": "Release Notes 1.10.6"
+              "icon": "lucide-file",
+              "title": "YogiJi Maharaj"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -102,7 +107,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 409.5
+    "width": 200
   },
   "right": {
     "id": "52000b255a6d0928",
@@ -193,14 +198,18 @@
       "bases:Create new base": false
     }
   },
-  "active": "42a2516ab86e6d1e",
+  "active": "25282358732388ef",
   "lastOpenFiles": [
+    "YogiJi Maharaj.md",
     "Kishore Satsang.md",
-    "Ghanshyam.md",
     "Ghanshyam Charitra 2025.md",
+    "Assets/Swami ni vaat 4.png",
+    "Assets/Swami ni vaat 3.png",
+    "Assets/Swami ni vaat 1.png",
+    "Assets/Swami ni vaat 2.png",
+    "Ghanshyam.md",
     "Ghanshyam-Charitra-2025.md",
     "README.md",
-    "Assets/Swami ni vaat 1.png",
     "Assets"
   ]
 }
