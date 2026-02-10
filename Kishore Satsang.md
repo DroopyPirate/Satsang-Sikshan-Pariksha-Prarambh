@@ -42,6 +42,37 @@
 - General dos and donts
 
 
+# 19 Punjo Dodiyo
+- પાણવી gaam - Punja Dodiya - Rajput bhakt.
+- Nana gopnath jai - mahadev ni baath bhari samudra ma padva gyo. Bhagwan na male - to deh mukvo. Akashwani - bhagwan swaminarayan na santo malse.
+- Savare - saanti lai khetare - KrupaNanad ane GunatitaNand swami aya
+- Satsangi thaya - dikri ne saankhyoyogi kari - damad pan tyagi banya
+- Karyani na VastaKhachar ne kidhu - tamare tya bhagwan ave to mane kehvu
+- Mahraj karyani - GangaRaam ne moklyo paanvi gaam
+- Punja karyani pochya - maharaj sarangpur mate nikdi gayela - bhukhya tarsya sarangpur mate nikdya
+- Sarangpur raste - Sajeli ane Vajeli gaam vache Khijdo - maharaj betha - Naja Jogiya ne kidhu, taras laagi chhe.
+- 2-4 vaar pani pivdayu - prabhu ni taras jaai nai
+- Maharaj khijda par chadya - punja ne avta joya - prabhu paani lai dodya - bhetya - pani alyu - hath pakdi khijde betha
+- prabhu no mahima - etloj emne maanki no mahima
+- manki mate khad laine avta ta - prabhu dham ma - Bhagu ji ane Ratan ji malya.
+- Punja - murcha aai padya - ek pahor pachi bhaan ayu
+- Sidha gadhda - Gopalanand swami pase - swami kahe khavanu na chhodso
+- Gade nathi utartu sache - paramhanso  na samm. Maharaj mane 13 me divse dhaam ma lai jase
+- 13 divse khadha pidha vagar seva kaam karyu. 13 ma divse badha jami rahya pachi - maharaj aya - badhae joya - dham ma lai gaya
+
+
+# 20 Naath Bhakt
+- Baroda - Kaachhiya Patel - naath bhakt
+- Kasab vaada kapda - maharaj ne apta
+- Shaak-bakaalu vechvano dhandho - paisa bhega thai - gadhda aai santo ne jamade
+- gadhda thi nikdya - maharaj - naath bhakt ne bolai lavo
+- Vishwamitri nadi e madya - tarat pacha farya
+- Emna patni ne maharaj dham lai java avela
+- Baadak - Prabhudaas - samadhi thai - bhgwan pase sakar lai ave
+- 16 varse dhaam ma - gaam ma saakar vechi
+
+
+
 
 
 
