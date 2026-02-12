@@ -71,6 +71,13 @@
 - Baadak - Prabhudaas - samadhi thai - bhgwan pase sakar lai ave
 - 16 varse dhaam ma - gaam ma saakar vechi
 
+# 21 BaalMandal ma Vartnuk
+- General dos and donts
+
+
+# 23 Kirtan
+- Bhaav dhaarine bolo Jay Jay
+
 
 
 

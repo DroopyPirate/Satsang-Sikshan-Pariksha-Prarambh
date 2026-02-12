@@ -40,3 +40,16 @@
 - thakorji ni badhi seva kare - kuva - paani sichi ne - jhaad ful ugade
 - fulo no haar - thakorji ne perave - murti sathe vaato kare
 - mitro ne mandire bolavi - dhun karave - bhajan gaay - aarti, dandvat
+
+# 7 Mane Sadhu banavo
+- 7 ma dhoran ma aya
+- GunatitaNand swami -> Sadguru MaadhavCharan Swami -> KrushnaCharan Swami sant mandal lai dhaari aya
+- Baapa bau seva kare. Swami "Sadhu banso?" Bapa "Sadhu banavo to saru"
+- Swami "Tari icha  puri thase"
+
+# 8 Jhina bhai Junagadh ma
+- KrushnaCharan Swami malya - 1 varsh pachi
+- Mata e chheli vaar - Kansaar bani jamadya
+- Samvat 1965 Kaartak Sud Saatam - Motabhai Kamadshi bhai sathe Junagadh
+- Samvat 1965 Kaartak Sud 14 ni divase parshadi diksha - KrushnaCharan swami
+- Sevao kare - gaayo charava jaai - 300 datan ni cheeri lai ave - thakela - katha ma bese - kirtan gaai - bija divse guru ni seva ma
